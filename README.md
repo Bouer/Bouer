@@ -6,7 +6,9 @@
 - En este espacio publicare todos mis proyectos a partir de la fecha: 15/09/2021 , con su documentacion detallada
 - Proyectos anteriores, algunos mal documentados, tambien estaran disponibles y me podran consultar por dudas.
 
-Gracias y                 "..QUE EL LIMITE SEA TU IMAGINACION.."
+Gracias y ...
+
+"..QUE EL LIMITE SEA TU IMAGINACION.."
 
 
 
